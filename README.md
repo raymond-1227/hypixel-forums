@@ -2,7 +2,7 @@
 
 ## About
 
-Seriously the mods can't delete these people who kept whining on their ban appeal denied, but can delete my argue about these people should stop posting ban appeal denied.
+Seriously the mods can't delete these people who kept whining on their ban appeal denied, but instead they can delete my argue about these people should stop posting ban appeal denied.
 
 ## Credits
 
